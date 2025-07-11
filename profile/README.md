@@ -64,7 +64,7 @@ Türkiye
 
 We’re always open to partnerships, pilots, and conversations that align with our vision.
 
-📫 Contact us: [info@upcytech.com](mailto:info@upcytech.com)  
+📫 Contact us: [contact@upcytech.com](mailto:contact@upcytech.com)  
 🔗 LinkedIn: [linkedin.com/company/upcytech](https://linkedin.com/company/upcytech)
 
 ---
